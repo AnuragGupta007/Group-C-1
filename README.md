@@ -1,1 +1,1 @@
-The big exchanges that hold customer deposits are a big target for hackers, and unfortunately, most bitcoin exchanges store user funds.
+Everything about Mark Zuckerberg is pure hacker. Hackers don't take realities of the world for granted; they seek to break and rebuild what they don't like. They seek to outsmart the world.
