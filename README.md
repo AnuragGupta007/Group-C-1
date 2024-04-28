@@ -12,6 +12,7 @@ Ihave been recruited in ISTE society as a Technical member .
 ## Introduction of Anurag Gupta -
 
 - My name is Anurag Gupta . I am from simdega,Jharkhand.
+![download](https://github.com/ISTE-HIT/Group-C/assets/161105520/30d8cf27-fe83-4c28-bcff-e47e5fe05f7c)
 
   ## Educational Qualifications:-
   - I have done matriculation from Montfort senior secondary school,affiliated to CBSEin which i got a total of 
